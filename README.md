@@ -1,5 +1,6 @@
 ## Hi there 👋
-<img src="blob:https://uk.pinterest.com/3ae9a968-695d-46d7-9d06-1109c47e423e"/>
+
+
 <!--
 **kylezii/kylezii** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
