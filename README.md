@@ -1,7 +1,6 @@
 ## Hi there 👋
 
-<=img src="https://64.media.tumblr.com/8e77118a3f6f583777f2a1c96724e95b/a8a18813165beb9a-7c/s250x400/0b7e252c7bc62baa174c7fb622ad3ec2838fb1b4.gifv"/>
-
+<img src="[https://i.pinimg.com/564x/cd/0a/7f/cd0a7fbf727278591707768947ad1276.jpg](https://64.media.tumblr.com/8e77118a3f6f583777f2a1c96724e95b/a8a18813165beb9a-7c/s250x400/0b7e252c7bc62baa174c7fb622ad3ec2838fb1b4.gifv)"/>
 <!--
 **kylezii/kylezii** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
