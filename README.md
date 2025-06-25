@@ -14,6 +14,9 @@ Here are some ideas to get you started:
 
 ![](https://komarev.com/ghpvc/?username=gentlehandsplease&style=flat-square&label=profile_views&color=c02a2e)
 -->
+
+<img src="[(https://64.media.tumblr.com/8e77118a3f6f583777f2a1c96724e95b/a8a18813165beb9a-7c/s540x810/b9cc815d42289684644d8a2c9d1f2625510a9eb4.gifv)]"/img>(https://64.media.tumblr.com/8e77118a3f6f583777f2a1c96724e95b/a8a18813165beb9a-7c/s540x810/b9cc815d42289684644d8a2c9d1f2625510a9eb4.gifv)
+
 STAMPS !
 #
 
