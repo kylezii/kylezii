@@ -1,19 +1,4 @@
-<!--
-**kylezii/kylezii** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
-
-![](https://komarev.com/ghpvc/?username=gentlehandsplease&style=flat-square&label=profile_views&color=c02a2e)
--->
+#
 
 <img src="https://media.zenfs.com/en/comingsoon_net_477/53c10191beaa762cb3b0c27a91f36c24"/> 
 
@@ -26,6 +11,12 @@ ALFIE / COS/OC I'M USING / NICKNAMES
 tmasc / he/him
 
 bisexual 
+
+. . .
+
+i'm often at the cod area or rping / docks
+
+feel free to int w me !
 
 . . .
 
