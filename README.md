@@ -16,7 +16,7 @@ Here are some ideas to get you started:
 -->
 
 <img 
-src="(https://tenor.com/en-GB/view/wallace-wells-confused-scott-pilgrim-takes-off-gif-16652678191824149828)"/>
+src="<div class="tenor-gif-embed" data-postid="7182566491408267812" data-share-method="host" data-aspect-ratio="1.61871" data-width="100%"><a href="https://tenor.com/view/wallace-wells-scott-pilgrim-takes-off-talk-gif-7182566491408267812">Wallace Wells Scott Pilgrim Takes Off GIF</a>from <a href="https://tenor.com/search/wallace+wells-gifs">Wallace Wells GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>"/>
 
 STAMPS !
 #
