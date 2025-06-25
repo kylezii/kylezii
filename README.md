@@ -4,10 +4,16 @@
 
 #
 > 🦇 > ... **LINKS**
+
+. . .
+
 wip
+
 . . .
 
 > 🦇 > ... **ABOUT ME**
+
+. . .
 
 ALFIE / COS/OC I'M USING / NICKNAMES
 
