@@ -25,9 +25,11 @@ bisexual
 
 . . .
 
-i'm often at the cod area or rping / docks
 
-feel free to int w me !
+
+i'm often at the cod area or rping / docks. im a slow replyer sometimes + im offtab a lot so please don't think im trying to ignore you
+
+feel free to int w me, c+h always!
 
 . . .
 
