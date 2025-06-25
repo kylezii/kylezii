@@ -16,7 +16,8 @@ Here are some ideas to get you started:
 -->
 
 <img 
-src="https://64.media.tumblr.com/8e77118a3f6f583777f2a1c96724e95b/a8a18813165beb9a-7c/s540x810/b9cc815d42289684644d8a2c9d1f2625510a9eb4.gifv"/>
+src="![image](https://github.com/user-attachments/assets/367ab19c-9110-41f9-a2ab-6ae1e8188358)
+"/>
 
 STAMPS !
 #
