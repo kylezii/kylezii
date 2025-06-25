@@ -17,7 +17,7 @@ Here are some ideas to get you started:
 
 ![](https://komarev.com/ghpvc/?username=gentlehandsplease&style=flat-square&label=profile_views&color=c02a2e)
 -->
-
+STAMPS !
 #
 
 <img src="https://i.pinimg.com/564x/cd/0a/7f/cd0a7fbf727278591707768947ad1276.jpg" width="110" height="70"/> <img src="https://64.media.tumblr.com/bab01605fb8b5ed2927e78f606c30433/d7d529b67f874c85-ad/s100x200/3cdab265b17c5bf7dfca29057180d8a1c83aed9c.pnj" 
