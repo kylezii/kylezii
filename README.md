@@ -15,21 +15,19 @@ wip
 
 . . .
 
-ALFIE / COS/OC I'M USING / NICKNAMES
+╰ name(s) ﹕alfie , cosplays/ocs i'm using , nicknames .
 
-minor
+ ⸝⸝ minor
 
-tmasc / he/him
+︵ tmasc / he/him
 
-bisexual 
+ ⸝⸝ . bisexual 
 
 . . .
 
+╰ i'm often at the cod area or rping / docks. im a slow replyer sometimes + im offtab a lot so please don't think im trying to ignore you
 
-
-i'm often at the cod area or rping / docks. im a slow replyer sometimes + im offtab a lot so please don't think im trying to ignore you
-
-feel free to int w me, c+h always!
+feel free to int w me, c+h always! ︵ 
 
 . . .
 
@@ -40,3 +38,4 @@ width="110" height="70"/> <img src="https://64.media.tumblr.com/fa6aa8ab3dd4ae25
 
 <img src="https://i.pinimg.com/736x/10/a5/55/10a5557c1ce95c49e07eb39cd277b568.jpg"/>
 <img src="https://pixelsafari.neocities.org/dividers/road.gif"/>
+
